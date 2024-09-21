@@ -8,6 +8,11 @@
 
 
 
+
+
+
+
+
 多看幾次
 快速看
 不要看太久
@@ -52,4 +57,10 @@
 分享幾次
 越來越強大
 程式語言蘋果
+譯自英文-尼爾莫漢 (Neal Mohan) 是一位美國企業高管，現任 YouTube 執行長。 莫漢出生於印第安納州拉斐特。他童年的大部分時間是在美國度過的，然後在 1985 年與家人搬到印度。他主修電機工程，於 1996 年畢業。他很快就成為公司內的重要人物。 维基百科（英文)
 
+前YouTube CEO Susan Wojcicki 肺癌病逝，得年56
+
+Yahoo News HK
+https://hk.news.yahoo.com › former-youtube-ceo-susan...
+2024年8月12日 — 她是Google 早期的關鍵員工之一，並在2014 到2023 年間，擔任YouTube 的CEO。 ... 曾擔任YouTube CEO 長達近十年的Susan Wojcicki 稍早去世，得年56 歲。
